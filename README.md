@@ -10,6 +10,8 @@
 
 # 퀴즈
 ## 광활한세상
+### https://youtu.be/-jI3Ok3oge4
+### https://youtu.be/-jI3Ok3oge4?t=152
 ## 몸 퀴즈
 ### https://ko.wikipedia.org/wiki/%ED%98%88%EA%B4%80
 ## 스마트폰 퀴즈 
