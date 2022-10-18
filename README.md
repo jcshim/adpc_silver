@@ -9,6 +9,7 @@
 # 대한민국 1등
 ## 우리나라가 세계 1등인 것들
 ## 한글 아리랑
+## 반도체 메모리 https://www.investkorea.org/ik-kr/cntnts/i-117/web.do
 ####  https://youtu.be/IQGYjaU0lhw
 ####  https://youtu.be/9rCWea3lVJg?t=77 ( 인공지능, 아리랑, 어메이징)
 ####  https://youtu.be/9rCWea3lVJg?t=192
