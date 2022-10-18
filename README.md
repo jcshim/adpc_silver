@@ -11,14 +11,17 @@
 
 # 대한민국 1등
 ## 우리나라가 세계 1등인 것들
-## 한글 아리랑
+## 한글, 거북선(조선) 
+## 아리랑(K팝,K드라마)
+## 해수 담수화 능력
 ###  https://youtu.be/9rCWea3lVJg?t=77
-## 반도체 메모리 
+## 반도체 메모리
 ### https://www.investkorea.org/ik-kr/cntnts/i-117/web.do
 ###  https://youtu.be/IQGYjaU0lhw
 ###  https://youtu.be/9rCWea3lVJg?t=192
 ## 견마로봇
 ### https://youtu.be/yEW-9SbXahI
+### https://youtu.be/tF4DML7FIWk
 ## Darpa 휴보
 ###  https://youtu.be/H3PptkxA5CU
 
