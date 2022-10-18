@@ -9,12 +9,15 @@
 ## 예수님이 당신을 사랑합니다.
 
 # 퀴즈
+## 퀴즈1: 모래의 개수, 하늘의 별
 ## 광활한세상
 ### https://youtu.be/-jI3Ok3oge4
 ### https://youtu.be/-jI3Ok3oge4?t=152
-## 몸 퀴즈
+### https://youtu.be/-jI3Ok3oge4?t=231
+## 몸퀴즈 
 ### https://ko.wikipedia.org/wiki/%ED%98%88%EA%B4%80
 ## 스마트폰 퀴즈 
+### 가장 비싼 부품
 
 # 대한민국 1등
 ## 우리나라가 세계 1등인 것들
@@ -30,7 +33,7 @@
 ### https://youtu.be/yEW-9SbXahI
 ### https://youtu.be/tF4DML7FIWk
 ## Darpa 휴보
-###  https://youtu.be/H3PptkxA5CU
+### https://youtu.be/H3PptkxA5CU
 
 # 안동
 ## 1909년 안동 사진: 구글 "1909년 안동" 검색
@@ -47,5 +50,6 @@
 ## 메타버스
 
 # 결론
+## 마음을 즐겁게
 ## 많이 웃자
 ## 복있는 사람
